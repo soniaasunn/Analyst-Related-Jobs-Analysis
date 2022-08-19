@@ -1,1 +1,1 @@
-# Analyst-Related-Jobs-Analysis
+# Analyst-Related Jobs Analysis
